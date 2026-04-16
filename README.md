@@ -21,9 +21,6 @@
 * 📧 Email: **[aaronsth233@gmail.com](mailto:aaronsth233@gmail.com)**
 * 💻 GitHub: [@aaronsth28](https://github.com/aaronsth28)
 
-## 😄 Pronouns
-
-* He/Him
 
 ## ⚡ Fun Fact
 
